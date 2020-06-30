@@ -12,3 +12,6 @@ Aang wurde 12 VZK am Südlichen Lufttempel als Sohn zweier Luftnomaden geboren. 
 Aang und Zuko:
 > Ich hab mich jahrelang auf diese Begegnung vorbereitet. Ich hab trainiert, ich hab meditiert … und dabei bist du nur ein Kind!
 > Und du bist nur ein Teenager.
+
+
+<img src="https://vignette.wikia.nocookie.net/avatar/images/a/ae/Aang_at_Jasmine_Dragon.png/revision/latest/scale-to-width-down/310?cb=20121016192845&path-prefix=de"/>
