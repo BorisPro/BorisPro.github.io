@@ -8,3 +8,7 @@ Aang wurde 12 VZK am Südlichen Lufttempel als Sohn zweier Luftnomaden geboren. 
 * Seedrachenreiten
     * Von Seedrachen abgeworfen werden
     * Teenager Feuernationprinzen ärgern
+
+Aang und Zuko:
+> Ich hab mich jahrelang auf diese Begegnung vorbereitet. Ich hab trainiert, ich hab meditiert … und dabei bist du nur ein Kind!
+> Und du bist nur ein Teenager.
